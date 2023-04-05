@@ -1,1 +1,2 @@
-# Congo_Mining_Sites
+# Congo Mining Sites and Protected Areas
+
